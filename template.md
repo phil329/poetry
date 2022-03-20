@@ -1,6 +1,6 @@
 # # title
 
-***author【dynasty】***
+***李白【唐】***
 
 text
 
