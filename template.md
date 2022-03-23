@@ -1,6 +1,6 @@
 # # title
 
-***元好问【金】***
+***author【dynasty】***
 
 text
 

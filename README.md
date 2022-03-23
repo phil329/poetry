@@ -24,4 +24,6 @@
 
 ---
 
+**胸怀文墨虚若谷，腹有诗书气自华！**
+
 [  Link of Contents](CONTENTS·目录.md)
